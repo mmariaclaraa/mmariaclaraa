@@ -1,2 +1,2 @@
-- 👋 Hi, I’m Maria Clara
+👋 Hi, I’m Maria Clara
 
